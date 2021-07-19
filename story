@@ -1,1 +1,2 @@
-Once upon a time, in a forest there lived a monkey who recided on a berry tree, which was on a bank of a river. on the same forest there lived a crocodile and his wife.
+Once upon a time, in a forest there lived a monkey who recided on a berry tree, which was on a bank of a river. on the same forest there lived a crocodile and his wife. 
+One day the crocodile came to the banks for the river and rested under the tree.
